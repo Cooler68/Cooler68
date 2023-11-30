@@ -1,4 +1,4 @@
-I code stuff... sometimes... yeah...
+✨ I code stuff... sometimes... yeah... ✨
 
 :3
 
